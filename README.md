@@ -1,1 +1,0 @@
-# Pyton-recopilacion-ejercicios-simples
